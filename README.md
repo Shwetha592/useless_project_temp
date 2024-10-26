@@ -1,5 +1,6 @@
 
-![COVER1](https://github.com/user-attachments/assets/1c7ef0f5-f39b-42a5-b166-619f56ae81f0)
+
+![COVER2](https://github.com/user-attachments/assets/75947fc7-c1dc-4b7d-ada9-fc8c537ad002)
 
 
 # [JungleMath] 🎯
