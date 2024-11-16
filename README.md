@@ -1,4 +1,4 @@
-
+https://youtu.be/7ZpZ3jJrTyc?si=pd5mXS9nK0UBlqlM -- video of how it works
 
 ![COVER2](https://github.com/user-attachments/assets/75947fc7-c1dc-4b7d-ada9-fc8c537ad002)
 
